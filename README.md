@@ -1,4 +1,4 @@
-![Timeless_Design](https://github.com/sourceduty/Timeless_Products/assets/123030236/9e1b7afe-7990-48bf-ae73-0d40f9ba5782)
+![Timeless_Design](https://github.com/sourceduty/Timeless_Products/assets/123030236/06029535-8f23-4e88-a07b-3bb495cb1313)
 
 > Timeless product designs consumed across multiple generations.
 
